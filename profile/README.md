@@ -1,4 +1,4 @@
-# Lectormanga APK 6.0 (Premium) Free Download For Android 2025 👋
+# Lectormanga APK 6.0 (Premium) Descargar Última Versión gratis Android 2025 👋
 
 # Descargar APK Gratis: [Lectormanga APK](https://shorturl.at/xuOeD)
 
